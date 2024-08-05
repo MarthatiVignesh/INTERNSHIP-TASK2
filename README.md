@@ -1,4 +1,5 @@
-![PIC1](https://github.com/user-attachments/assets/e439738a-3a32-45f1-a62c-c28b09fbea61)
+![PIC2](https://github.com/user-attachments/assets/c6f12396-7528-432a-9903-d04c4c0a6602)
+
 NAME :Marthati Vignesh
 
 COMPANY :CODTECH IT SOLUTIONS
